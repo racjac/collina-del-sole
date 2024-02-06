@@ -1,2 +1,2 @@
 # collina-del-sole
- La Vigno della Collina del Sole
+ La Vigna della Collina del Sole
